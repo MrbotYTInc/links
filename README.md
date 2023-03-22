@@ -9,6 +9,6 @@ https://roblox.com/
 
 https://sites.google.com/site/unblockedgame76/eggy-car/
 
-https://prodigygame.org
+https://prodigygame.com
 
 Burger king foot lettuce
