@@ -11,6 +11,6 @@ https://sites.google.com/site/unblockedgame76/eggy-car/
 
 https://prodigygame.com
 
-htpss://w3schools.com/
+https://w3schools.com/
 
 Burger king foot lettuce
