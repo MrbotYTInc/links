@@ -1,5 +1,5 @@
 # Links
-https://education.loves-tech-all.com
+https://education.loves-all.teach
 
 www.google.com
 
