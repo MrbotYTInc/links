@@ -23,6 +23,6 @@ https://forms.google.com/
 
 https://mail.google.com/
 
-https://mrbotytinc.github.io/
+https://mrbotytinc.github.io/links
 
 Burger king foot lettuce
