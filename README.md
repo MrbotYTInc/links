@@ -15,12 +15,14 @@ https://w3schools.com/
 
 https://w3schools.com/spaces/mrbotytinc/editor
 
-docs.google.com
+https://docs.google.com
 
-sheets.google.com
+https://sheets.google.com
 
-slides.google.com
+https://slides.google.com
 
-forms.google.com
+https://forms.google.com
+
+https://mail.google.com
 
 Burger king foot lettuce
