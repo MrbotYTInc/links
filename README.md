@@ -1,5 +1,5 @@
 # Links
-https://wcpss.technology/
+https://education.loves-tech-all.com
 
 www.google.com
 
