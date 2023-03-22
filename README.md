@@ -13,6 +13,6 @@ https://prodigygame.com
 
 https://w3schools.com/
 
-https://w3schools.com/space/mrbotytinc/editor
+https://w3schools.com/spaces/mrbotytinc/editor
 
 Burger king foot lettuce
