@@ -25,4 +25,6 @@ https://mail.google.com/
 
 https://mrbotytinc.github.io/links
 
+https://coolmathgames.com/
+
 Burger king foot lettuce
