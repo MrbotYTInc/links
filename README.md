@@ -1,36 +1,36 @@
 # Links
-https://education.loves-all.tech/more/
+https://education.loves-all.tech/more/ (Reader Books)
 
-www.google.com
+www.google.com (Google if target website isnt here)
 
-https://chess.com/
+https://chess.com/ (Chess)
 
-https://roblox.com/
+https://roblox.com/ (Roblox)
 
-https://sites.google.com/site/unblockedgame76/
+https://sites.google.com/site/unblockedgame76/ (Unblocked Games 76)
 
-https://prodigygame.com/
+https://prodigygame.com/ (Prodigy)
 
-https://w3schools.com/
+https://w3schools.com/ (Learn to Code)
 
-https://docs.google.com/
+https://docs.google.com/ (Google Docs)
 
-https://sheets.google.com/
+https://sheets.google.com/ (Google Sheets)
 
-https://slides.google.com/
+https://slides.google.com/ (Google Slides)
 
-https://forms.google.com/
+https://forms.google.com/ (Google Forms)
 
-https://mail.google.com/
+https://mail.google.com/ (Gmail)
 
-https://mrbotytinc.github.io/links
+https://mrbotytinc.github.io/links (Website for this document)
 
-https://coolmathgames.com/
+https://coolmathgames.com/ (CoolMath)
 
-https://m.youtube.com/
+https://m.youtube.com/ (YT)
 
-https://fiverr.com
+https://fiverr.com (Freelancing)
 
-https://bash.gg/game/math/play/ & https://pitifulsinuosity0.com if it doesnt work
+https://bash.gg/ & https://pitifulsinuosity0.com if it doesnt work (MC, Snake, etc.)
 
 Burger king foot lettuce
