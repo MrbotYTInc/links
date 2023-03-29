@@ -31,6 +31,6 @@ https://m.youtube.com/
 
 https://fiverr.com
 
-https://bash.gg/game/math/play/
+https://bash.gg/game/math/play/ & https://pitifulsinuosity0.com if it doesnt work
 
 Burger king foot lettuce
