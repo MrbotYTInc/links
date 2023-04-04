@@ -37,4 +37,6 @@ https://nookazon.com/ (Nookazon)
 
 https://chat.openai.com/ (ChatGPT)
 
+https://hotmail.com (MS Emails)
+
 Burger king foot lettuce
