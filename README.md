@@ -37,6 +37,8 @@ https://nookazon.com/ (Nookazon)
 
 https://chat.openai.com/ (ChatGPT)
 
-https://hotmail.com (MS Emails)
+https://hotmail.com/ (MS Emails)
+
+https://classroom.google.com/ (Just in case teacher)
 
 Burger king foot lettuce
