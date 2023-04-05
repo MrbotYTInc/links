@@ -43,4 +43,8 @@ https://classroom.google.com/ (Just in case teacher)
 
 https://openai.com/ (Normal OpenAI)
 
+https://gimkit.com/ (Gimkit Dashboard)
+
+https://gimkit.com/join/ (Gimkit Join)
+
 Burger king foot lettuce
