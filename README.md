@@ -41,4 +41,6 @@ https://hotmail.com/ (MS Emails)
 
 https://classroom.google.com/ (Just in case teacher)
 
+https://openai.com/ (Normal OpenAI)
+
 Burger king foot lettuce
