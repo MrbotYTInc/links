@@ -31,7 +31,7 @@ https://m.youtube.com/ (YT)
 
 https://fiverr.com (Freelancing)
 
-https://bash.gg/ & https://juveniledeoderant.gg if it doesnt work (MC, Snake, etc.)
+https://bash.gg/ & https://juveniledeodorant.com if it doesnt work (MC, Snake, etc.)
 
 https://nookazon.com/ (Nookazon)
 
