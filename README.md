@@ -49,4 +49,6 @@ https://gimkit.com/join/ (Gimkit Join)
 
 https://discord.gg/ (Discord)
 
+https://snake.googlemaps.com/ (Google maps snake)
+
 Burger king foot lettuce
